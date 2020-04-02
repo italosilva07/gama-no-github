@@ -1,0 +1,1 @@
+Estou gostando bastante por dois principais  motivos: didática e prática do conteúdo. E  assim sinto mais motivação para aprender novas tecnologias. E gratidão por essa iniciativa e por todo suporte do portal e comunidade  que ajuda sempre.
